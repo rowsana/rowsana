@@ -6,5 +6,5 @@ Love to code and make coffee.
 
 [Personal Blog.](https://rzwsan.vercel.app/en)
 
-LinkedIn: @rzwsan | Instagram: @rzwsan
+X (Formerly Twitter): @rzwsan | LinkedIn: @rzwsan
 
